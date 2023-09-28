@@ -3,7 +3,8 @@
 ![image](https://github.com/Dev-dataanalyst/Sales_Management/assets/143479964/06b4465c-1601-4886-a534-85abd56c3599)
 
 
-![image](https://github.com/Dev-dataanalyst/Sales_Management/assets/143479964/e9e10df6-da29-4c7d-8acd-e164b399a7cb)
+![image](https://github.com/Dev-dataanalyst/Sales_Management/assets/143479964/0e11fa38-ace0-4b44-a90b-45cabd43ce59)
+
 
 ![image](https://github.com/Dev-dataanalyst/Sales_Management/assets/143479964/6a80d742-9663-487d-8d51-649a030c80be)
 
